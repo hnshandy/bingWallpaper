@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-01-27 | [Mehrangarh Fort in Jodhpur, Rajasthan, India (© Jayakumar/Shutterstock)](https://cn.bing.com/th?id=OHR.MehrangarhCourtyard_EN-US2129728794_UHD.jpg) 
+
 2022-01-25 | [Lower Manhattan in New York City (© New York On Air/Offset/Shutterstock)](https://cn.bing.com/th?id=OHR.ManhattanView_EN-US1961282866_UHD.jpg) 
 
 2022-01-24 | [Meoto Iwa (Wedded Rocks) off the coast of Futami, Mie Prefecture, Honshu, Japan (© Marco Gaiotti/plainpicture)](https://cn.bing.com/th?id=OHR.MeotoIwa_EN-US1871391855_UHD.jpg) 
